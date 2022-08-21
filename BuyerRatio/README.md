@@ -1,4 +1,5 @@
 # Buyer Ratio
 
-![download](https://user-images.githubusercontent.com/88937827/185788573-6faa79a0-3d51-4f07-a6a5-ff99758b9c8f.jpg)
+![download](https://user-images.githubusercontent.com/88937827/185788630-2c8c9949-e676-45b4-b99d-406facb80334.jpg)
+
 
